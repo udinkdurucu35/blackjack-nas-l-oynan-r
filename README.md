@@ -1,0 +1,1 @@
+# blackjack-nas-l-oynan-r
